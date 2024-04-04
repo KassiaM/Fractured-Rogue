@@ -1,2 +1,2 @@
 # Fractured-Rogue.github.io
-Fractured Rogue Studios new website coming soon page
+Fractured Rogue Studios New Website Coming Soon Page
